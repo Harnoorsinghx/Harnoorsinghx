@@ -54,7 +54,7 @@ Check out my work: [Portfolio Link] (Coming Soon!)
 
 Are you looking for a creative and reliable front-end developer for your next project? I'd love to hear more about your ideas and how we can bring them to life!
 
-📧 **Contact me at:** harnoorsinghx@example.com
+📧 **Contact me at:** igh singhnoor759@gmail.com
 
 🌐 **Connect on LinkedIn:** [LinkedIn Profile](https://linkedin.com/in/harnoorsinghx)
 
